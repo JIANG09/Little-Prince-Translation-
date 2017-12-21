@@ -1,24 +1,42 @@
 # Chapter 3 
 很久以后，我才弄清楚他从哪儿来的。这位小王子，问了我很多问题，而对我问他的问题总像没听见似的。他无意中吐露了一些话，我拼拼凑凑，终于弄明白这一切。比如，他第一次看见我的飞机（我就不画自己的飞机了，对我来说，这样的画实在太复杂了。），就问我：“这是什么东西？”
-It took me a long time to find out where he come from. This little prince asked me so many questions and seemed not to hear what I asked him. It was from words dropped by chance that, little by little, everything was revealed to me. For example, he saw my plane at the first sight (I shall not draw my plane. To draw a plane is so complicated for me), asked: What is this object?
+
+It took me a long time to learn where he come from. This little prince,who asked me so many questions, never seem to hear the ones I asked him. It was from words dropped by chance that, little by little, everything was revealed to me. The fisrt time he saw my airplane (I shall not draw my plane,that would be much too complicated for me), he asked me: What is that object?
+
  “这不是什么东西。它能在天上飞来飞去。这是一架飞机，我的飞机。”我很自豪的讲给他听，自己能飞上天。
-It is not an object. It can fly. It is an airplane. It is my airplane. I am very proud to let him learn that I can fly. 
+ 
+It is not an object. It flies. It is an airplane. It is my airplane. 
+
+And I was very proud to have him learn that I can fly. 
+
 他听了大声问：“什么？你从天上跌下来了？
-He cried out: “What? You fall down the sky？”
+
+He cried out, then: What? You droped down from the sky？
+
 “是的。”我谦逊的回答到。
+
 Yes. I answered modestly. 
+
 “喔！这可真有趣！”
+
 “Oh! This is funny!”
+
 然后小王子发出一阵清脆的笑声，这下我可恼了。我希望别人能认真严肃的看待自己的不幸。
-And the little prince broke out a peal of laughter. And it irritated me. I want people could take my misfortunes seriously. 
-接着他又问：“这么说，你也是从天上来的！你来自哪个星球？”
-And he asked: you are from sky. Which planted do you come from? 
-他出现的这样神秘，我一直没搞明白。但就在这一刹那，我脑子里灵光一闪，摸到一丝线索。我突如其来地问：“你是从别的星球来的啦？”
-At that moment I caught a gleam of light of his impenetrable mystery of his presence. I demanded, abruptly, “do you come from another planet?”
+
+And the little prince broke into a lovely peal of laughter, which irritated me very much. I like my misfortunes to be taken seriously. 
+
+Then he added: so you, too, come from the sky. Which is your planet?
+
+他出现的神秘，我一直没搞明白。但就在这一刹那，我脑子里灵光一闪，摸到一丝线索。我突如其来地问：“你是从别的星球来的啦？”
+
+At that moment I caught a gleam of light of his impenetrable mystery of his presence;and I demanded, abruptly, “do you come from another planet?”
+
 可他没有回答。他轻轻的抬起头，眼神依然停驻在我的飞机上。
-He didn’t answer and tossed gently, with eyesight still on my plane. 
+But he didn't reply. He tossed gently, without taking his eyes from  my planet. 
+
 “可不是么，乘着它来，你来的地方不会太远。”说完他陷入遐想中，很久才回过神来。接着，他从口袋里掏出我画的小羊，看着自己的宝贝，又沉浸入神思中。
-It should be. Take it, you cannot come from very far. He sank into reverie and it took a long time. And he took the sheep out of his pocket and looked at it with reflective contemplation. 
+
+It is true that on that you can't have come from very far away. He sank into reverie and it took a long time. And he took the sheep out of his pocket and looked at it with reflective contemplation. 
 你想想看，才提到“别的星球”就打住了，我的好奇涌上心头，伤筋费神，竭力想了解他更多。
 You can imagine my curiosity went up when half-confidence about “other plante”. I tried hard to know more about him.
 “你从哪里来？我的小家伙。刚才你说到你那儿，那是什么地方？你要把你的小羊带到哪儿去？”
