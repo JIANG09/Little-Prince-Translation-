@@ -36,24 +36,45 @@ But he didn't reply. He tossed gently, without taking his eyes from  my planet.
 
 “可不是么，乘着它来，你来的地方不会太远。”说完他陷入遐想中，很久才回过神来。接着，他从口袋里掏出我画的小羊，看着自己的宝贝，又沉浸入神思中。
 
-It is true that on that you can't have come from very far away. He sank into reverie and it took a long time. And he took the sheep out of his pocket and looked at it with reflective contemplation. 
+It is true that on that you can't have come from very far away. 
+
+And he sank into reverie which lasted a long time. Then, taking my sheep out of his pocket, he buried himself in the contemplation of his treasure. 
+
 你想想看，才提到“别的星球”就打住了，我的好奇涌上心头，伤筋费神，竭力想了解他更多。
-You can imagine my curiosity went up when half-confidence about “other plante”. I tried hard to know more about him.
+
+You can imagine how my curiosity was aroused by this half-confidence about the “other plantes”. I made a great effort, therefore, tofind out more on this subject.
+
 “你从哪里来？我的小家伙。刚才你说到你那儿，那是什么地方？你要把你的小羊带到哪儿去？”
-Where do you come from? My little man. What is “where you lived”? What kind of place? Where will you bring your sheep to? 
+
+My little man, where do you come from? . What is this “where I live”,of which you speak? Where do you want to take your sheep?
+
 还是没有回答，他安安静静的，沉思了一阵。然后说：“你送我了一只盒子，这就好了，夜晚小羊有屋子住了。”
-He didn’t reply. In a silence, he seemed thinking on something. And he said: ”it is good you draw me a box. At night, the sheep can use it as an house.”
+
+After a reflective silence he answered: The thing is so good about the box you have given me is tha at night the sheep can use it as his house.”
+
 “那是。如果你听话，我还会给你根绳子，白天可以拴着他；还可以加根杆子。”
-That is so. If you are good I will give you a string, which can tie the sheep, with a post. 
+
+That is so. And if you are good I will give you a string,too,so that you can tie him during the day, and a post to tie him to. 
+
 小王子一听，一震一惊，“拴住他！多么奇怪的想法！”
-Little prince shocked：Tie him! How queer this idea!
+
+The little prince seemed shocked by this offer：Tie him! What a queer idea!
+
 “可要是不拴住小羊，它会四处跑，然后跑丢的。”
-But if you don’t tie it, it will run and get lost.
+
+But if you don’t tie him,I said, he will wander off somewhere and get lost.
+
 我的朋友笑的像银铃一样：“你叫他跑哪儿去？”
-My friend broke out another peal of laughter: where he could go?
+
+My friend broke out another peal of laughter: where do you think he would go?
+
 “哪儿都可以啊。往前一直跑．．”
-Anywhere. Run straight ahead…
+
+Anywhere. Straight ahead of him.
+
 小王子诚恳的说：“这倒是没事。我那里，所有东西都很小。”
-Little prince said earnestly: it doesn’t matter. Where I live everything is so small. 
+
+Little prince said earnestly: That doesn’t matter. Where I live, everything is so small! 
+
 紧接着，他又说道：“就是往前一直跑，也不能跑多远．．．” 语气中仿佛带着一丝忧伤。
-And, with perhaps a hint of sadness, he said: run ahead, it can’t run very far. 
+And, with perhaps a hint of sadness, he added: straight ahead of him, nobody can go very far. 
